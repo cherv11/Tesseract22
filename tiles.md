@@ -7,3 +7,4 @@
 [Игры 2023](https://www.youtube.com/watch?v=hqPYt4jwp4g)  
 [Minecraft-gen](https://habr.com/ru/post/590547/)  
 [Шум Перлина](https://habr.com/ru/post/342906/)  
+[Doom](https://dtf.ru/games/109621-plastilinovye-monstry-i-igrushechnoe-oruzhie-kak-sozdavalsya-doom-1993-goda)
